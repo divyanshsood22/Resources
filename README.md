@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/88816011/129174500-d3dd1c5d-b845-4806-b92f-d157196f0cfa.png)
+![Links](https://user-images.githubusercontent.com/88816011/166412900-132cc2dd-531c-4ca9-a043-fb5cd63bc093.png)
 
 # Resources | Divyansh Sood Discord Server
 
