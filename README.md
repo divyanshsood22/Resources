@@ -8,6 +8,6 @@
 
 ` 3 ` **Youtube** : [LarynxXD](https://www.youtube.com/channel/UCO2OgbKmdPCOUaUmcftiYQA)
 
-` 4 ` **Instagram** : [Instagram](https://www.instagram.com/_divyansh_sood22/)
+` 4 ` **Instagram** : [Instagram](https://www.instagram.com/divyanshsood22/)
 
  ` 5 ` **Discord** : [Divyansh Sood](https://www.discord.gg/6VcdFF3AFV)
